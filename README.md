@@ -7,7 +7,7 @@
 
 # Resources you need for transitioning to serious ML roles.
 
- And All of then are here and best thing fior FREEE !
+ And All of then are here and best thing fior FREE !
 
  Hope this is useful!
 
